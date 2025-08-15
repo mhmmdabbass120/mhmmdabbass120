@@ -1,4 +1,4 @@
-## 🌟 Hi there, I'm Duvan! 👋
+## 🌟 Hi there, I'm Mohammad! 👋
 
 _Always learning new things_
 
